@@ -37,3 +37,12 @@ Top 1. Dagames
 and ect
 
 
+
+ 1. I love my mother (irl) sm! Shes the best mother and if u disrespect then dni.(or do not bring or talk abt my parents even as if it's a joke) 
+  2. DO not bring anyone death retaled otherwise dni.
+  3. Do not cross the line with ur ''jokes''
+  4. If I made you uncomfy or If I did anything you hate. Please let me know before things gets ugly.
+  5. If you need to have somebody to talk to or (vent) you can go ahead and Dm me (only if ur comfy)
+     
+I also play roblox (ADD ME!! @Fleetway_rouge)
+This is my Discord user if you want to Dm me! (
