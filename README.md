@@ -45,4 +45,5 @@ and ect
   5. If you need to have somebody to talk to or (vent) you can go ahead and Dm me (only if ur comfy)
      
 I also play roblox (ADD ME!! @Fleetway_rouge)
-This is my Discord user if you want to Dm me! (
+This is my Discord user if you want to Dm me! (fleetway_irl)
+
