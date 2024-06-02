@@ -34,6 +34,8 @@ mha 5%
 mlp 50%
 creepypasta 80%
 tadc/the amazing digital circus 15%
+batim 50%
+vocaloid 20%
 and ect :) 
 
 My fav music artist
