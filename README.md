@@ -12,6 +12,7 @@
 If you can't handle me Dni (so pls dont pretends as if I didnt warn you about how bad I can be)
 I only make cringe jokes that aren't funny for those who makes It first.
 
+Fleetway was created in 29 may 1993 very close to mine! I found my husband!!! <33 we have sm common
 
 .
 . ℑ 𝔥𝔞𝔳𝔢 𝔞 𝔥𝔲𝔤𝔢 𝔬𝔟𝔰𝔢𝔰𝔰𝔦𝔬𝔫 𝔬𝔣 𝔣𝔩𝔢𝔢𝔱𝔴𝔞𝔶 𝔰𝔬 𝔶𝔬𝔲 𝔪𝔦𝔤𝔥𝔱 𝔴𝔞𝔫𝔫𝔞 𝔤𝔢𝔱 𝔲𝔰𝔢𝔡 𝔱𝔬 𝔪𝔢 𝔦𝔣 𝔶𝔞 𝔴𝔞𝔫𝔫𝔞 𝔟𝔢 𝔣𝔯𝔦𝔢𝔫𝔡𝔰. 
@@ -30,7 +31,7 @@ fnaf 99&
 fundamnetal 10%
 baldi 5%
 tattletail 15%
-mha 5%
+mha 0% (no kidding) 
 mlp 50%
 creepypasta 80%
 tadc/the amazing digital circus 15%
@@ -55,7 +56,7 @@ and ect
   3. Do not cross the line with ur ''jokes''
   4. If I made you uncomfy or If I did anything you hate. Please let me know before things gets ugly.
   5. If you need to have somebody to talk to or (vent) you can go ahead and Dm me (only if ur comfy)
-     
+     ALSO I HATE SLUGS 
 I also play roblox (ADD ME!! @Fleetway_rouge)
 This is my Discord user if you want to Dm me! (fleetway_irl)
 
