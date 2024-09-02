@@ -2,6 +2,11 @@
  .
  .
  .
+I do programming, animations/animatic/comics when im not lazy and I do digital art and irl arts, i do a bit different things.
+ :) 
+ I've been fleetway every since when i was a child
+IM fleetway forever :3 
+ 
 ℑ𝔣 𝔶𝔬𝔲 𝔴𝔞𝔫𝔱 𝔱𝔬 𝔟𝔢𝔠𝔬𝔪𝔢 𝔪𝔶 𝔣𝔯𝔦𝔢𝔫𝔡 𝔱𝔥𝔢𝔫 ℑ 𝔞𝔪 𝔞𝔩𝔴𝔞𝔶𝔰 𝔭𝔩𝔞𝔶𝔦𝔫𝔤 𝔭𝔱!
 
 𝔇𝔫𝔦: 𝔱𝔥𝔬𝔰𝔢 𝔴𝔥𝔬 𝔡𝔬𝔫'𝔱 𝔨𝔫𝔬𝔴 𝔥𝔬𝔴 𝔱𝔬 𝔯𝔢𝔰𝔭𝔢𝔠𝔱 𝔱𝔬𝔴𝔞𝔯𝔡𝔰 𝔬𝔫𝔢 𝔞𝔫𝔡 𝔞𝔫𝔬𝔱𝔥𝔢𝔯. 
