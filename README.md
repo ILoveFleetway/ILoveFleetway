@@ -61,7 +61,16 @@ and ect
   3. Do not cross the line with ur ''jokes''
   4. If I made you uncomfy or If I did anything you hate. Please let me know before things gets ugly.
   5. If you need to have somebody to talk to or (vent) you can go ahead and Dm me (only if ur comfy)
-     ALSO I HATE SLUGS 
-I also play roblox (ADD ME!! @Fleetway_rouge)
+     ALSO I HATE SLUGS
+     
+I also play roblox
+(ADD ME!! @Fleetway_rouge)
+
 This is my Discord user if you want to Dm me! (fleetway_irl)
+
+My instagram account. https://www.instagram.com/fleetwaychaotix/
+
+My Twitter/X account: https://twitter.com/BambooB22188644
+
+other platforms will be added soon! or just ask me in my dms
 
