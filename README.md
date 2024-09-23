@@ -3,6 +3,8 @@
  .
  .
 I do programming, animations/animatic/comics when im not lazy and I do digital art and irl arts, i do a bit different things.
+
+and btw I am muslim so I'm a girl in irl and im straight ✨
  :) 
  I've been fleetway every since when i was a child
 IM fleetway forever :3 
