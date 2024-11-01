@@ -76,3 +76,9 @@ My Twitter/X account: https://twitter.com/BambooB22188644
 
 other platforms will be added soon! or just ask me in my dms
 
+DNI PPL: 
+Marla (Bombnerd)
+Shidi: (lordX0Xever)
+Katty/kat (or whatever your called)
+those 3 ppl are nothing but shitty disappointment
+
