@@ -87,3 +87,7 @@ Shidi: (lordX0Xever)
 Katty/kat (or whatever your called)
 those 3 ppl are nothing but shitty disappointment
 
+More abt me:
+I curse a lot sometimes so please get used to me if you can
+and dni ppl 11 year olds or younger (pls dni!) 
+
