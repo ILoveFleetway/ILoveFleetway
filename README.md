@@ -94,8 +94,8 @@ other platforms will be added soon! or just ask me in my dms
 DNI PPL: 
 Marla (Bombnerd)
 Shidi: (lordX0Xever)
-Katty/kat (or whatever your called)
-those 3 ppl are nothing but shitty disappointment
+Katty/kat (or whatever your called) and lilac the hedgehog (shes a purple sonic ponytown oc)
+those 4 ppl are nothing but shitty disappointment
 
 More abt me:
 I curse a lot sometimes so please get used to me if you can
