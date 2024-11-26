@@ -97,6 +97,8 @@ Shidi: (lordX0Xever)
 Katty/kat (or whatever your called) and lilac the hedgehog (shes a purple sonic ponytown oc)
 those 4 ppl are nothing but shitty disappointment
 
+extra dni: harassing me, sark supporter. 
+ 
 More abt me:
 I curse a lot sometimes so please get used to me if you can
 and dni ppl under 12 years old 
