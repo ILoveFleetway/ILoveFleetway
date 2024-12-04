@@ -12,7 +12,8 @@ T̷̡̧̬̲̭̦̘̩̊̉͛̓̓̌͌̕Ḩ̵̛̘̤͙͔̝̫̖̻̦̞͙̺̅̿͘͝É̸�
  FLEETWAY IS MY BELOVED HUSBAND<33 (THE REAL FLEET
  .
  
- OKay so I've realized BUNCH OF People on sonic area has been taking inspo and my Fleetway quills ideas without asking my permission, i do not wish for it to become trendy and i do not want people to take inspo or copy my idea so please whisper or ask for permission.
+ OKay so I've realized BUNCH OF People on sonic area (pt) has been taking inspo and my Fleetway quills ideas without asking my permission, i do not wish for it to become trendy and i do not want people to take inspo or copy my idea so please whisper or ask for permission.
+ 
  .
  .
 I do programming, animations/animatic/comics when im not lazy and I do digital art and irl arts, i do a bit different things.
