@@ -76,7 +76,7 @@ tadc/the amazing digital circus 15%
 batim 50%
 vocaloid 20%
 and ect :) 
-
+![image](https://github.com/user-attachments/assets/5cb8422f-28ca-4d4d-a567-4acea10ea0d9)
 My fav music artist
 Top 1. Dagames
 2. Axie.
