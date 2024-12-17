@@ -77,7 +77,6 @@ batim 50%
 vocaloid 20%
 and ect :) 
 
-![image](https://github.com/user-attachments/assets/5cb8422f-28ca-4d4d-a567-4acea10ea0d9)
 ![image](https://github.com/user-attachments/assets/4670d091-cc28-4d35-a02f-a3a8dcd692e1)
 ![image](https://github.com/user-attachments/assets/341949b4-9052-4d31-9276-e0ec65823f19)
 
@@ -123,6 +122,9 @@ Katty/kat (or whatever your called) and lilac the hedgehog (shes a purple sonic 
 those 4 ppl are nothing but shitty disappointment
 
 extra dni: harassing me, sark supporter. 
+
+
+![image](https://github.com/user-attachments/assets/5cb8422f-28ca-4d4d-a567-4acea10ea0d9)
  
 More abt me:
 I curse a lot sometimes so please get used to me if you can
