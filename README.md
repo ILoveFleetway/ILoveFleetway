@@ -32,7 +32,7 @@ IM fleetway forever :3
 . 
 𝔜𝔬𝔲 𝔠𝔞𝔫 𝔣𝔦𝔫𝔡 𝔪𝔢 𝔬𝔫 𝔓𝔱: 𝔖𝔬𝔫𝔦𝔠 𝔞𝔯𝔢𝔞, ℌℌ 𝔞𝔯𝔢𝔞, 𝔣𝔫𝔞𝔣 𝔞𝔯𝔢𝔞, 𝔰𝔬𝔪𝔢𝔱𝔦𝔪𝔢𝔰 𝔪𝔶𝔠𝔱 𝔞𝔯𝔢𝔞 𝔬𝔯 𝔞𝔯𝔬𝔲𝔫𝔡 𝔱𝔥𝔢 𝔟𝔞𝔨𝔢𝔯𝔶 𝔞𝔫𝔡 𝔠𝔞𝔳𝔢.
 
-![image](https://github.com/user-attachments/assets/1f511dcc-eacd-424b-9f55-f3270533126d)
+![image](https://github.com/user-attachments/assets/07fac6b4-48fb-4979-b884-69b7e2a89027)
 
 If you can't handle me Dni (so pls dont pretends as if I didnt warn you about how bad I can be)
 I only make cringe jokes that aren't funny for those who makes It first.
