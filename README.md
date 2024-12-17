@@ -8,7 +8,7 @@ T̷̡̧̬̲̭̦̘̩̊̉͛̓̓̌͌̕Ḩ̵̛̘̤͙͔̝̫̖̻̦̞͙̺̅̿͘͝É̸�
 
                                                                                                                                  
  ![image](https://github.com/user-attachments/assets/f46900be-761d-4bc3-b467-763214b70273)
-![image](https://github.com/user-attachments/assets/24e8a7b8-1df7-4236-b8ee-aae9f1bfd934)
+![image](https://github.com/user-attachments/assets/61db763e-6c32-4202-952b-785513596d60)
 
  FLEETWAY IS MY BELOVED HUSBAND<33 (THE REAL FLEET
  .
