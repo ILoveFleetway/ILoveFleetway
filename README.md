@@ -13,7 +13,9 @@ T̷̡̧̬̲̭̦̘̩̊̉͛̓̓̌͌̕Ḩ̵̛̘̤͙͔̝̫̖̻̦̞͙̺̅̿͘͝É̸�
  .
  
  OKay so I've realized BUNCH OF People on sonic area (pt) has been taking inspo and my Fleetway quills ideas without asking my permission, i do not wish for it to become trendy and i do not want people to take inspo or copy my idea so please whisper or ask for permission.AND DONT COPY MY SKINS OR MY IDEAS OR TAKING INSPO PLEASE
- 
+
+ ![image](https://github.com/user-attachments/assets/559dfc86-e67f-4c18-a0a8-d01e060631f0)
+
  .
  .
 I do programming, animations/animatic/comics when im not lazy and I do digital art and irl arts, i do a bit different things.
