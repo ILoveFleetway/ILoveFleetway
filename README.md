@@ -126,3 +126,5 @@ I curse a lot sometimes so please get used to me if you can
 and dni ppl under 12 years old 
 ![image](https://github.com/user-attachments/assets/5a6da218-39cd-4ae3-a75d-84f8f3cf713b)
 ![image](https://github.com/user-attachments/assets/596266f7-2fe2-43af-9f8b-87d23a69798d)
+
+![image](https://github.com/user-attachments/assets/dcd470bc-09d4-4e79-b1ea-d0a235cde74c)
