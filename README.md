@@ -55,6 +55,8 @@ Fleetway was created in 29 may 1993 very close to mine! I found my husband!!! <3
 ℭ𝔞𝔩𝔩 𝔪𝔢 𝔉𝔩𝔢𝔢𝔱𝔴𝔞𝔶 𝔰𝔲𝔭𝔢𝔯 𝔰𝔬𝔫𝔦𝔠 𝔬𝔯 𝔣𝔩𝔢𝔢𝔱 𝔣𝔬𝔯 𝔰𝔥𝔬𝔯𝔱
 
 
+![image](https://github.com/user-attachments/assets/e7f9277e-d338-41a6-ba22-05d8434d1866)
+
 SHIPS
 Me x fleetway (he is my husbando only) 
 thats it and if you dont like it pls dni ^^
