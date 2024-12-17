@@ -1,4 +1,5 @@
 
+![{0671DB4A-BE4D-42BB-BA3E-1C95693DAE1F}](https://github.com/user-attachments/assets/0dad9b6f-9c3c-4815-9e9d-002f54a35a86)
 
 T̷̡̧̬̲̭̦̘̩̊̉͛̓̓̌͌̕Ḩ̵̛̘̤͙͔̝̫̖̻̦̞͙̺̅̿͘͝Ȩ̸̪̯̗̘̥̣̲̣̣͍͚͙̥̩́̀̈̆͑ Ŗ̷͇̙̰̭̪̟̺̲̜̹͔̎̍́ͅȨ̸̪̯̗̘̥̣̲̣̣͍͚͙̥̩́̀̈̆͑Ą̵̺̰̻̻͔͇͓̈́̓͛̏̈́͌͋̄̑͆̏L̷͖͈̓͌̎̉͒͗͂̓̌̚͝ F̵̜̜͎͉̯̜̓͂L̷͖͈̓͌̎̉͒͗͂̓̌̚͝Ȩ̸̪̯̗̘̥̣̲̣̣͍͚͙̥̩́̀̈̆͑Ȩ̸̪̯̗̘̥̣̲̣̣͍͚͙̥̩́̀̈̆͑T̷̡̧̬̲̭̦̘̩̊̉͛̓̓̌͌̕W̵̰̻͍̉̔̅̀̐͐͒͆̒̚Ą̵̺̰̻̻͔͇͓̈́̓͛̏̈́͌͋̄̑͆̏Ý̴̥͙̘̇̈́̇̃͒̿́͘͘͝͝ͅ Ś̸͙̺̥̰̯͙̭͆̏͂O̵̧̗͕̹̼̦̗̮̱̝͆͊́́̈̿̋ͅN̸̡̧͕͙̼̻̳̦̪̞̯͎̦͓̏̒͌͑͒͊̾͌̑̅̕͝ͅI̸̺̺͎̰̥̜̯̼̮̰͖̜͂͆̿̈́̿̔C̴̀͐ͅ
                                                                             
@@ -15,7 +16,6 @@ T̷̡̧̬̲̭̦̘̩̊̉͛̓̓̌͌̕Ḩ̵̛̘̤͙͔̝̫̖̻̦̞͙̺̅̿͘͝É̸�
  OKay so I've realized BUNCH OF People on sonic area (pt) has been taking inspo and my Fleetway quills ideas without asking my permission, i do not wish for it to become trendy and i do not want people to take inspo or copy my idea so please whisper or ask for permission.AND DONT COPY MY SKINS OR MY IDEAS OR TAKING INSPO PLEASE
  
 ![image](https://github.com/user-attachments/assets/9d9489f6-0583-4163-b575-2c6e6574ea19)
-
  .
  .
 I do programming, animations/animatic/comics when im not lazy and I do digital art and irl arts, i do a bit different things.
