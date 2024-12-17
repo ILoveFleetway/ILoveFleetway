@@ -8,10 +8,8 @@ T̷̡̧̬̲̭̦̘̩̊̉͛̓̓̌͌̕Ḩ̵̛̘̤͙͔̝̫̖̻̦̞͙̺̅̿͘͝É̸�
 
                                                                                                                                  
  ![image](https://github.com/user-attachments/assets/f46900be-761d-4bc3-b467-763214b70273)
- ![image](https://github.com/user-attachments/assets/4e4a3f84-64b9-4af4-acf1-7eba3712cb84)
+![image](https://github.com/user-attachments/assets/24e8a7b8-1df7-4236-b8ee-aae9f1bfd934)
 
-
- 
  FLEETWAY IS MY BELOVED HUSBAND<33 (THE REAL FLEET
  .
  
@@ -94,7 +92,11 @@ and ect
   4. If I made you uncomfy or If I did anything you hate. Please let me know before things gets ugly.
   5. If you need to have somebody to talk to or (vent) you can go ahead and Dm me (only if ur comfy)
      ALSO I HATE SLUGS
-     
+
+
+
+      ![image](https://github.com/user-attachments/assets/4e4a3f84-64b9-4af4-acf1-7eba3712cb84)
+
 I also play roblox
 (ADD ME!! @Fleetway_rouge)
 
