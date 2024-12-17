@@ -8,6 +8,7 @@ T̷̡̧̬̲̭̦̘̩̊̉͛̓̓̌͌̕Ḩ̵̛̘̤͙͔̝̫̖̻̦̞͙̺̅̿͘͝É̸�
 
                                                                                                                                  
  ![image](https://github.com/user-attachments/assets/f46900be-761d-4bc3-b467-763214b70273)
+ ![image](https://github.com/user-attachments/assets/4e4a3f84-64b9-4af4-acf1-7eba3712cb84)
 
 
  
@@ -39,6 +40,8 @@ If you can't handle me Dni (so pls dont pretends as if I didnt warn you about ho
 I only make cringe jokes that aren't funny for those who makes It first.
 
 Fleetway was created in 29 may 1993 very close to mine! I found my husband!!! <33 we have sm common
+
+![image](https://github.com/user-attachments/assets/3ed913c5-5d42-47b4-bf44-aa147a0a0eda)
 
 .
 . ℑ 𝔥𝔞𝔳𝔢 𝔞 𝔥𝔲𝔤𝔢 𝔬𝔟𝔰𝔢𝔰𝔰𝔦𝔬𝔫 𝔬𝔣 𝔣𝔩𝔢𝔢𝔱𝔴𝔞𝔶 𝔰𝔬 𝔶𝔬𝔲 𝔪𝔦𝔤𝔥𝔱 𝔴𝔞𝔫𝔫𝔞 𝔤𝔢𝔱 𝔲𝔰𝔢𝔡 𝔱𝔬 𝔪𝔢 𝔦𝔣 𝔶𝔞 𝔴𝔞𝔫𝔫𝔞 𝔟𝔢 𝔣𝔯𝔦𝔢𝔫𝔡𝔰. 
