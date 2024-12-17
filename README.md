@@ -79,6 +79,7 @@ Top 1. Dagames
 7.dheusta
 and ect
 
+![image](https://github.com/user-attachments/assets/a1f33e64-b1ea-4c16-a94e-50068505d599)
 
 
  1. I love my mother (irl) sm! Shes the best mother and if u disrespect then dni.(or do not bring or talk abt my parents even as if it's a joke) 
