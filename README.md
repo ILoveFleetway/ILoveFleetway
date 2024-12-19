@@ -109,11 +109,6 @@ I also play roblox
 (ADD ME!! @Fleetway_rouge)
 
 This is my Discord user if you want to Dm me! (fleetway_irl)
-
-My instagram account. https://www.instagram.com/fleetwaychaotix/
-
-My Twitter/X account: https://twitter.com/BambooB22188644
-
 other platforms will be added soon! or just ask me in my dms
 
 DNI PPL: 
