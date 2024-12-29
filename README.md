@@ -7,6 +7,7 @@ T̷̡̧̬̲̭̦̘̩̊̉͛̓̓̌͌̕Ḩ̵̛̘̤͙͔̝̫̖̻̦̞͙̺̅̿͘͝É̸�
                                                                             
                                                                                                                                                                                
 
+I am 17 year old (may, 23, 2007)
                                                                                                                                  
  ![image](https://github.com/user-attachments/assets/f46900be-761d-4bc3-b467-763214b70273)
 ![image](https://github.com/user-attachments/assets/61db763e-6c32-4202-952b-785513596d60)
