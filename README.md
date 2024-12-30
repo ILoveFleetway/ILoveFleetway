@@ -7,7 +7,6 @@ T̷̡̧̬̲̭̦̘̩̊̉͛̓̓̌͌̕Ḩ̵̛̘̤͙͔̝̫̖̻̦̞͙̺̅̿͘͝É̸�
                                                                             
                                                                                                                                                                                
 
-I am 17 year old (may, 23, 2007)
                                                                                                                                  
  ![image](https://github.com/user-attachments/assets/f46900be-761d-4bc3-b467-763214b70273)
 ![image](https://github.com/user-attachments/assets/61db763e-6c32-4202-952b-785513596d60)
@@ -47,6 +46,8 @@ Fleetway was created in 29 may 1993 very close to mine! I found my husband!!! <3
 
 ![image](https://github.com/user-attachments/assets/3ed913c5-5d42-47b4-bf44-aa147a0a0eda)
 
+
+REMINDER IM I am 17 year old (may, 23, 2007) IM STILL A MINOR 
 .
 . ℑ 𝔥𝔞𝔳𝔢 𝔞 𝔥𝔲𝔤𝔢 𝔬𝔟𝔰𝔢𝔰𝔰𝔦𝔬𝔫 𝔬𝔣 𝔣𝔩𝔢𝔢𝔱𝔴𝔞𝔶 𝔰𝔬 𝔶𝔬𝔲 𝔪𝔦𝔤𝔥𝔱 𝔴𝔞𝔫𝔫𝔞 𝔤𝔢𝔱 𝔲𝔰𝔢𝔡 𝔱𝔬 𝔪𝔢 𝔦𝔣 𝔶𝔞 𝔴𝔞𝔫𝔫𝔞 𝔟𝔢 𝔣𝔯𝔦𝔢𝔫𝔡𝔰. 
 𝔒𝔫𝔩𝔦𝔫𝔢 𝔞𝔤𝔢: 𝔄𝔤𝔢: 19/ 23/ (fleetway sonic age)
