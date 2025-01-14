@@ -17,7 +17,8 @@ Welcome to the repository of **Fleetway Super Sonic** — the embodiment of chao
  - **"You think you can tame chaos? Chaos is what I am!"**
      - **"You wanted a hero? I’m the villain of your nightmares!"**
                 "I can destroy you without even trying!"
-![{6FB7A647-D54A-4392-8E7C-6144BB6AA55F}](https://github.com/user-attachments/assets/f3cae618-822c-484c-ba99-4fc9dc8bace2)
+![image](https://github.com/user-attachments/assets/178c6ae1-02f2-4a70-9877-2cb7aab0726c)
+        ![image](https://github.com/user-attachments/assets/31e015d2-0177-490e-a46f-23e172471d65)
   - **"This is my world now! Nothing can stop me!"**
   - 
 "Foolish little creatures, thinking they can challenge me!"**
