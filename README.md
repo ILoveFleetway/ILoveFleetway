@@ -1,133 +1,68 @@
-![image](https://github.com/user-attachments/assets/dcd470bc-09d4-4e79-b1ea-d0a235cde74c)
-![image](https://github.com/user-attachments/assets/b567ab31-0959-432c-946c-e7d99074ecbf)
-![image](https://github.com/user-attachments/assets/fcb66cd8-f316-465e-b512-e6b5c40793e8)
-![{71EB2F85-2F6C-45AD-BA10-05E9610397BD}](https://github.com/user-attachments/assets/47d27085-5610-4c83-87c5-075390ac6f38)
+#💥 **Fleetway Super Sonic** - Chaos Incarnate 🌀
 
-T̷̡̧̬̲̭̦̘̩̊̉͛̓̓̌͌̕Ḩ̵̛̘̤͙͔̝̫̖̻̦̞͙̺̅̿͘͝Ȩ̸̪̯̗̘̥̣̲̣̣͍͚͙̥̩́̀̈̆͑ Ŗ̷͇̙̰̭̪̟̺̲̜̹͔̎̍́ͅȨ̸̪̯̗̘̥̣̲̣̣͍͚͙̥̩́̀̈̆͑Ą̵̺̰̻̻͔͇͓̈́̓͛̏̈́͌͋̄̑͆̏L̷͖͈̓͌̎̉͒͗͂̓̌̚͝ F̵̜̜͎͉̯̜̓͂L̷͖͈̓͌̎̉͒͗͂̓̌̚͝Ȩ̸̪̯̗̘̥̣̲̣̣͍͚͙̥̩́̀̈̆͑Ȩ̸̪̯̗̘̥̣̲̣̣͍͚͙̥̩́̀̈̆͑T̷̡̧̬̲̭̦̘̩̊̉͛̓̓̌͌̕W̵̰̻͍̉̔̅̀̐͐͒͆̒̚Ą̵̺̰̻̻͔͇͓̈́̓͛̏̈́͌͋̄̑͆̏Ý̴̥͙̘̇̈́̇̃͒̿́͘͘͝͝ͅ Ś̸͙̺̥̰̯͙̭͆̏͂O̵̧̗͕̹̼̦̗̮̱̝͆͊́́̈̿̋ͅN̸̡̧͕͙̼̻̳̦̪̞̯͎̦͓̏̒͌͑͒͊̾͌̑̅̕͝ͅI̸̺̺͎̰̥̜̯̼̮̰͖̜͂͆̿̈́̿̔C̴̀͐ͅ
-                                                                            
-                                                                                                                                                                               
+Welcome to the repository of **Fleetway Super Sonic**, the unstoppable force of chaos from *Sonic the Comic*! Just like the power he embodies, this repo is built for those who crave destruction, speed, and pure anarchy. 😈
 
-                                                                                                                                 
- ![image](https://github.com/user-attachments/assets/f46900be-761d-4bc3-b467-763214b70273)
-![image](https://github.com/user-attachments/assets/61db763e-6c32-4202-952b-785513596d60)
-![image](https://github.com/user-attachments/assets/5e11e4f2-4061-443e-85c5-3b48f502aaab)
-![image](https://github.com/user-attachments/assets/28f8e564-bd29-419b-ac8a-fd7a2f4eac69)
+I AM FLEETWAY #1
 
- FLEETWAY IS MY BELOVED HUSBAND<33 (THE REAL FLEET
- .
- 
- OKay so I've realized BUNCH OF People on sonic area (pt) has been taking inspo and my Fleetway quills ideas without asking my permission, i do not wish for it to become trendy and i do not want people to take inspo or copy my idea so please whisper or ask for permission.AND DONT COPY MY SKINS OR MY IDEAS OR TAKING INSPO PLEASE
- 
-![image](https://github.com/user-attachments/assets/9f8ef8ac-d874-4965-b6d5-41b1dbb83c2b)
+# 🌀 **Fleetway Super Sonic** - Chaos Unleashed ⚡
 
- .
-I do programming, animations/animatic/comics when im not lazy and I do digital art and irl arts, i do a bit different things.
+Welcome to the repository of **Fleetway Super Sonic** — the embodiment of chaos, destruction, and pure power. This is not just any repository; this is the realm where only chaos reigns.
+                                                                               G̷̖̘̠͍͗R̴̡̨̪͔̗͑̊͒Â̷̟̈͋͋́̽̄͆A̵̗̤͙͚̫̺̙̋̐̈́͐̎̋̈͐͋͜͜H̴̟̅H̷̜̮̬̑̓̈́̏̅̆͘Ḩ̸̣̝͖͚̬͖̽̂̋̋͊H̵̖͎̫̑̐͛͂͋̎̚̚͠͝ ̵̡̡̱̭́̽́̌͑̄̎̐͘Ľ̵̹̪̩̗̜̣̟̖̤̕ͅE̴̛̙̾̌T̶͎̪̜̾͆͠S̶͈̩̐̒̆̓ ̷̩͔́͑̀͗̕͝S̷̲̺͚̣͖͖͕̄E̶͖̯̖̭̊̅̉͑̈́̕̚͘͠E̴̙̫̪̠͍͙̳͒̈̏͐͘ ̶̹̭̘͉̭̫͎͂́͛̀́͂̍Ḩ̶̪͙̻͊̏̊̋͑͘O̶͈̹̅̾̐͑̅̊W̵̙͙̪̅̊͐͝͝ ̵͕̘͚̬̘̪̃͌̆͒́̈̽͌͘F̸̡̮̼̤̞͖̘̩͉́̃͜A̶͔̼͕̱͒̀́͒͋̕Ś̵̛̯̻̪̅̿̾̏́̾̑̓T̶͚͚͚̏͊́͛͌̈́̿͂͝ ̴̣̪͈͔̤͕̟̰̙̈́̇̎Y̶̮͊͑O̸̢̢̰̜͎̐͛͝Ū̷̜͊͋̄͐̓̈͆͘ ̵̰̠̈́͗̀͛̎̏̀̈́͂C̸̭̺̼͑͆̈́̽́Ã̴̢̹̯͍̃̿̕͝͠N̵̗͇̭̈́̅͌͐̈́̊͑́ ̶̢̙͎̮͔͚̰̐̏R̸̻̘͎̱̯̈̐̍͐E̷̙̓͌Ą̶̺͎͇̗̰̜̈́͑͌̈́̑̚͝L̴̨̯̈͒̂̉͆̅͛̽L̸͔̖͙̰̰̘͚̙̺͊̓͋̒̆̀͊͑̍͜Y̸̧̡̯̖̭̪̜̟͎̋̋̄͋̈́̎͆͒ ̴͎̳̜̹̜́́̆̎̿͂̊̕G̴̣̺̦̠̔́̎̌̽̃̐Ŏ̷̢̠͕͎̰̱̬̯̝̉̈́́͐͜?̸̪̇!̵̛̤͓̻͓͐̚
+                                                                        Y̸̧̛͎̙̞̠͆̔͊̓̈́̐̀͘Ȍ̵̟͆͛͌͛̿́̈̊̕Ȗ̵̞̝̦͍̳̽̒͝ ̸̦̗̹̂̓̍͊ş̶̰̲̠̗͝e̶͖̣͙̲̲̎̉͌̊͊̉̆ͅè̴̅̈̂̃̈́͐̊́͘ͅ ̶̢̦̱̤̩̜̫͔̽̈́̂̈̇̽̿̕̚͝t̸̜̠̬̭̗̔ḥ̸̿͋̔̾͑͋̈́͐͠ẹ̴̯͂̃͋ ̵̟̹̹͎͓̹̩̞̙̮͗̂̄͐̒̐͘͠s̶̤̞̮̣̟͓̈́́̃̍u̸̧͎̱̥͙͚̳̰͚̍͆̇̽̅̈́̌̐͂n̴̛̞̙̪̘̫̏̆͐́̚̚ ̶̘̣̪͂͝a̴̘̼̦̤͐̇ͅn̴͎̰͔͎̜̒̈́͋͂͘d̴̙̱̠͓̪͇̈́̿̊̍̂͒͌̍ ̵̲̥̘̠̳̩̮͎̙̳̍͌̋͐͝i̶͕̝̮̮̮̯̖̫̅̄̈́̈̒̓̚ṭ̶̾͗́͗͂͌̆̕ ̴̺̝͈̲̟̈́ͅS̵̙͉̺̣̳̅̐͑T̴̛̹͚̈́À̴̛̲͍͍̣̼̹̯̲̇R̷̟͘T̴͍͕̅̄̉̓̑͛̕S̵̨̖͉̆̀̍ ̵̯̳̺̰̙̠̟̹̥̋͒̈́̅͘T̶͍̙̫̪̫͇̝̔̌͘͜Ơ̸͖̟̲̺͈̥̲̥͗͘ ̷͇͎̜̳̠̳̫̣̫̲͑B̴̼̭̘͒͠͝Ǘ̶̡̥̹̖͓̲̐̑̔̄R̶͍̯̔̈̉́͋̈́̌͗͠Ņ̵͇̞̫̼͍̠͉̺̘̇̌̒̕.̸͖̟̅̽̈́̃͘ ̴̺̻̭̎I̵̧͉̪͓͓̗̼͉͐̉ͅͅt̷͈̓̾̀́̑̾̃̚'̶̨͚̥͕̮̞̦̞̠̔̀̉̀̅̒̈̃̕͘s̷̱͕̳͉̰̊͐̔̀͜͝ ̴̨͉̼̰̑̾̎̍͜m̴̡̨̤̳̖͚̜̦̖̬̒̎́̕y̵̨̡͓͎̝͉̝͉̬̍̏̃͠ ̸̡̰̩̖̠̘̗̿̓̅͗̽̀̈́ţ̵̲̱̺̲̬͕͌͋̊̑͒͠ǘ̶͖͈̹̯̂̊̄̈́r̷̙̥̼̮̩̘̔͒́̇̋͊̆̐ͅn̶̹̳͎̩̱̽̎̀̈̿̚ ̶̺̬͖̖̥͖͓̻͗͒͌̓t̵̡̖̠̩̜̪̗̝̆̔o̴͈̥̺̩͓͉̥̿̊̆͛̈́̄͠͠͠ ̷̧̯̹̹̭̝͓̘̺̊͗͗̈́̕
 
-and btw I am muslim so I'm a girl in irl and im straight ✨
- :) 
- I've been fleetway every since when i was a child
-IM fleetway forever :3 
- 
-ℑ𝔣 𝔶𝔬𝔲 𝔴𝔞𝔫𝔱 𝔱𝔬 𝔟𝔢𝔠𝔬𝔪𝔢 𝔪𝔶 𝔣𝔯𝔦𝔢𝔫𝔡 𝔱𝔥𝔢𝔫 ℑ 𝔞𝔪 𝔞𝔩𝔴𝔞𝔶𝔰 𝔭𝔩𝔞𝔶𝔦𝔫𝔤 𝔭𝔱!
+                                                                       - **"You’re too slow to stop me! But don’t worry—I’ll take my time destroying everything you care about!"**
+                                                                 - **"Destruction is my purpose, my joy, my reason for existence!"**
+                                                            - **"I’m beyond your control, beyond your understanding!"**
+                                                        - **"You think you can tame chaos? Chaos is what I am!"**
+                                                             - **"You wanted a hero? I’m the villain of your nightmares!"**
+                                                                       - **"I can destroy you without even trying!"**
 
-![image](https://github.com/user-attachments/assets/dc71c757-8567-496a-b916-b7dc44902c71)
-
-𝔇𝔫𝔦: 𝔱𝔥𝔬𝔰𝔢 𝔴𝔥𝔬 𝔡𝔬𝔫'𝔱 𝔨𝔫𝔬𝔴 𝔥𝔬𝔴 𝔱𝔬 𝔯𝔢𝔰𝔭𝔢𝔠𝔱 𝔱𝔬𝔴𝔞𝔯𝔡𝔰 𝔬𝔫𝔢 𝔞𝔫𝔡 𝔞𝔫𝔬𝔱𝔥𝔢𝔯. 
-𝔞𝔫𝔡 ℑ𝔣 𝔶𝔬𝔲 𝔠𝔞𝔫'𝔱 𝔥𝔞𝔫𝔡𝔩𝔢 𝔞𝔫𝔶𝔱𝔥𝔦𝔫𝔤 𝔱𝔥𝔞𝔱 𝔦𝔰 18+ 𝔭𝔩𝔢𝔞𝔰𝔢 𝔡𝔫𝔦 𝔞𝔫𝔡 ℑ i can be mean for a while or for the first time ..
-. 
-𝔜𝔬𝔲 𝔠𝔞𝔫 𝔣𝔦𝔫𝔡 𝔪𝔢 𝔬𝔫 𝔓𝔱: 𝔖𝔬𝔫𝔦𝔠 𝔞𝔯𝔢𝔞, ℌℌ 𝔞𝔯𝔢𝔞, 𝔣𝔫𝔞𝔣 𝔞𝔯𝔢𝔞, 𝔰𝔬𝔪𝔢𝔱𝔦𝔪𝔢𝔰 𝔪𝔶𝔠𝔱 𝔞𝔯𝔢𝔞 𝔬𝔯 𝔞𝔯𝔬𝔲𝔫𝔡 𝔱𝔥𝔢 𝔟𝔞𝔨𝔢𝔯𝔶 𝔞𝔫𝔡 𝔠𝔞𝔳𝔢.
-
-![image](https://github.com/user-attachments/assets/07fac6b4-48fb-4979-b884-69b7e2a89027)
-![image](https://github.com/user-attachments/assets/654e4415-ea8c-41cd-b3b0-e82e8a3b724f)
-If you can't handle me Dni (so pls dont pretends as if I didnt warn you about how bad I can be)
-I only make cringe jokes that aren't funny for those who makes It first.
-
-Fleetway was created in 29 may 1993 very close to mine! I found my husband!!! <33 we have sm common
-
-![image](https://github.com/user-attachments/assets/3ed913c5-5d42-47b4-bf44-aa147a0a0eda)
+                                                                       ![image](https://github.com/user-attachments/assets/6beebb76-0436-4668-92e7-24c7ee372412)
 
 
-REMINDER IM I am 17 year old (may, 23, 2007) IM STILL A MINOR 
-.
-. ℑ 𝔥𝔞𝔳𝔢 𝔞 𝔥𝔲𝔤𝔢 𝔬𝔟𝔰𝔢𝔰𝔰𝔦𝔬𝔫 𝔬𝔣 𝔣𝔩𝔢𝔢𝔱𝔴𝔞𝔶 𝔰𝔬 𝔶𝔬𝔲 𝔪𝔦𝔤𝔥𝔱 𝔴𝔞𝔫𝔫𝔞 𝔤𝔢𝔱 𝔲𝔰𝔢𝔡 𝔱𝔬 𝔪𝔢 𝔦𝔣 𝔶𝔞 𝔴𝔞𝔫𝔫𝔞 𝔟𝔢 𝔣𝔯𝔦𝔢𝔫𝔡𝔰. 
-𝔒𝔫𝔩𝔦𝔫𝔢 𝔞𝔤𝔢: 𝔄𝔤𝔢: 19/ 23/ (fleetway sonic age)
-ℑ𝔯𝔩 𝔞𝔤𝔢: 17 (𝔟𝔦𝔯𝔱𝔥𝔡𝔞𝔶, 23 𝔪𝔞𝔶 2007)
-𝔬𝔫𝔩𝔦𝔫𝔢 𝔟𝔬𝔯𝔫: 1993/2002
-𝔦𝔯𝔩: 2007 
-𝓲 𝓵𝓸𝓿𝓮 𝓕𝓵𝓮𝓮𝓽𝔀𝓪𝔂 𝓼𝓾𝓹𝓮𝓻 𝓼𝓸𝓷𝓲𝓬 𝓼𝓶𝓱(♡)
+                                                                       
+                                                                                - **"This is my world now! Nothing can stop me!"**
+                                                                                          - **"Foolish little creatures, thinking they can challenge me!"**
+                                                                          - **"It’s not about saving anyone. It’s about causing as much damage as possible!"**
+                                                                    - **"I’ll be the end of everything... and I won’t even break a sweat."**
+                                                               - **"You can try to stop me, but it will only make your suffering last longer!"**
+                                                            - **"Why should I stop? It’s too much fun watching everything burn!"**
+                                                               - **"Look at you—so weak, so pathetic. You couldn't even stop me if you tried!"**
+                                                                      - **"You think you can control me? I’m chaos incarnate—I bow to no one!"**
+                                                                            - **"I don’t need friends. I don’t need allies. All I need is destruction!"**
 
-ℑ𝔣 𝔶𝔬𝔲 𝔥𝔞𝔳𝔢 𝔦𝔰𝔰𝔲𝔢𝔰 𝔴𝔦𝔱𝔥 𝔭𝔩𝔰 𝔡𝔫𝔦 𝔞𝔫𝔡 ℑ𝔣 ℑ 𝔢𝔳𝔢𝔯 𝔪𝔞𝔡𝔢 𝔶𝔬𝔲 𝔣𝔢𝔢𝔩 𝔲𝔫𝔠𝔬𝔪𝔣𝔶 𝔱𝔥𝔢𝔫 𝔡𝔬𝔫𝔱 𝔦𝔫𝔱 𝔬𝔯 𝔶𝔬𝔲 𝔠𝔞𝔫 𝔭𝔩𝔢𝔞𝔰𝔢 𝔩𝔢𝔱 𝔪𝔢 𝔨𝔫𝔬𝔴 𝔦𝔫 𝔱𝔥𝔢 𝔡𝔪𝔰 𝔬𝔯 𝔴𝔥𝔦𝔰𝔭𝔢𝔯𝔰 𝔬𝔫 𝔭𝔱 :)
-ℭ𝔞𝔩𝔩 𝔪𝔢 𝔉𝔩𝔢𝔢𝔱𝔴𝔞𝔶 𝔰𝔲𝔭𝔢𝔯 𝔰𝔬𝔫𝔦𝔠 𝔬𝔯 𝔣𝔩𝔢𝔢𝔱 𝔣𝔬𝔯 𝔰𝔥𝔬𝔯𝔱
+                                                                            - **"You’re nothing but a bug to me, Boyfriend. Time to crush you!"**
+-                                                                           **"This is my world now, and I’ll make sure you don’t leave it alivE
+-                                                                       - **"You think you can challenge ME? You’re already too late
+-                                                                   *"You think you can stop me, Sonic? I am *beyond* your control!"**
+-                                                **"You’re too weak to even understand what true power is, Sonic!"**
+-                                                       **"Sonic, you're just a mere shadow of the power I possess! A joke!"**
+-                                                              **"You wanted to be the hero, but look at you now—pathetic!"**
+-                                                                    **"You can’t save anyone, Sonic. You can barely save yourself!"**
+                       - **"I’m the one who controls chaos now, not you. You’re just a pawn in my game!"**
+-                           **"You think you can tame me, Sonic? Chaos has consumed me. There’s no saving this!"**
+-                                **"Your speed means nothing when compared to the raw power I hold. I will destroy everything you care about!"**
+-                                    **"Face it, Sonic—you're just too slow to stop me. And I'm enjoying every second of it!"**
+-                                          **"You call yourself the hero? Heroes don’t destroy everything in their path. But I do!"**
+-                                                  **"Your attempts to stop me are laughable, Sonic. I *am* the ultimate power!"**
+-                                                      **"Look at you, Sonic. A mere reflection of the power that I’ve become. Weak. Helpless."**
 
+---
 
-![image](https://github.com/user-attachments/assets/e7f9277e-d338-41a6-ba22-05d8434d1866)
+## ⚡ **Remember, Chaos Reigns**
 
-SHIPS
-Me x fleetway (he is my husbando only) 
-thats it and if you dont like it pls dni ^^
+This repository follows the same chaotic and destructive spirit of **Fleetway Super Sonic**. If you're here, you’re ready to embrace the unpredictable. Keep these words in mind as you navigate through the chaos:
 
-Fandoms I am in: Sonic/sonic.exe 100%
-HH/hb 3%
-fnaf 99&
-fundamnetal 10%
-baldi 5%
-tattletail 15%
-mha 0% (no kidding) 
-mlp 50%
-creepypasta 80%
-tadc/the amazing digital circus 15%
-batim 50%
-vocaloid 20%
-and ect :) 
+- **"I’m not a hero. I’m not even close. I’m your worst nightmare!"**
 
-![image](https://github.com/user-attachments/assets/4670d091-cc28-4d35-a02f-a3a8dcd692e1)
-![image](https://github.com/user-attachments/assets/341949b4-9052-4d31-9276-e0ec65823f19)
+---
 
-My fav music artist
-Top 1. Dagames
-2. Axie.
-3. the living tombstone
-4. Jt music
-5. longestsoloever 
-6.Cg5
-7.dheusta
-and ect
+### 🤘 **Join the Chaos**
 
-![image](https://github.com/user-attachments/assets/a1f33e64-b1ea-4c16-a94e-50068505d599)
+To unleash the full power of Fleetway Super Sonic on your system, clone this repository and prepare for chaos:
 
-
- 1. I love my mother (irl) sm! Shes the best mother and if u disrespect then dni.(or do not bring or talk abt my parents even as if it's a joke) 
-  2. DO not bring anyone death retaled otherwise dni.
-  3. Do not cross the line with ur ''jokes''
-  4. If I made you uncomfy or If I did anything you hate. Please let me know before things gets ugly.
-  5. If you need to have somebody to talk to or (vent) you can go ahead and Dm me (only if ur comfy)
-     ALSO I HATE SLUGS
+```here is some more infos for you to know me...⚡
+https://github.com/ILoveFleetway/ME
 
 
 
-      ![image](https://github.com/user-attachments/assets/4e4a3f84-64b9-4af4-acf1-7eba3712cb84)
-
-I also play roblox
-(ADD ME!! @Fleetway_rouge)
-
-This is my Discord user if you want to Dm me! (fleetway_irl)
-other platforms will be added soon! or just ask me in my dms
-
-DNI PPL: 
-Marla (Bombnerd)
-Shidi: (lordX0Xever)
-Katty/kat (or whatever your called) and lilac the hedgehog (shes a purple sonic ponytown oc)
-those 4 ppl are nothing but shitty disappointment
-
-extra dni: harassing me, sark supporter. 
-
-
-![image](https://github.com/user-attachments/assets/5cb8422f-28ca-4d4d-a567-4acea10ea0d9)
- 
-More abt me:
-I curse a lot sometimes so please get used to me if you can
-and dni ppl under 12 years old 
-![image](https://github.com/user-attachments/assets/5a6da218-39cd-4ae3-a75d-84f8f3cf713b)
-![image](https://github.com/user-attachments/assets/596266f7-2fe2-43af-9f8b-87d23a69798d)
-
-![image](https://github.com/user-attachments/assets/dcd470bc-09d4-4e79-b1ea-d0a235cde74c)
