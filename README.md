@@ -25,7 +25,7 @@ Welcome to the repository of **Fleetway Super Sonic** — the embodiment of chao
  **"It’s not about saving anyone. It’s about causing as much damage as possible!"**
   
   *"I’ll be the end of everything... and I won’t even break a sweat."**
-     ![image](https://github.com/user-attachments/assets/84ae9ecf-7504-4bdf-9243-2189ce6edae0)
+   ![image](https://github.com/user-attachments/assets/84ae9ecf-7504-4bdf-9243-2189ce6edae0)
 
      
    "You can try to stop me, but it will only make your suffering last longer!"**
