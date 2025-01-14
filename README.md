@@ -19,17 +19,16 @@ Welcome to the repository of **Fleetway Super Sonic** — the embodiment of chao
 ![image](https://github.com/user-attachments/assets/6beebb76-0436-4668-92e7-24c7ee372412)
                                                                        
   - **"This is my world now! Nothing can stop me!"**
-                                                                                          - **"Foolish little creatures, thinking they can challenge me!"**
-                                                                          - **"It’s not about saving anyone. It’s about causing as much damage as possible!"**
-                                                                    - **"I’ll be the end of everything... and I won’t even break a sweat."**
-                                                               - **"You can try to stop me, but it will only make your suffering last longer!"**
-                                                            - **"Why should I stop? It’s too much fun watching everything burn!"**
-                                                               - **"Look at you—so weak, so pathetic. You couldn't even stop me if you tried!"**
-                                                                      - **"You think you can control me? I’m chaos incarnate—I bow to no one!"**
-                                                                            - **"I don’t need friends. I don’t need allies. All I need is destruction!"**
-
-                                                                            - **"You’re nothing but a bug to me, Boyfriend. Time to crush you!"**
-                                                                      - **"You think you can challenge ME? You’re already too late
+         **"Foolish little creatures, thinking they can challenge me!"**
+              **"It’s not about saving anyone. It’s about causing as much damage as possible!"**
+                        **"I’ll be the end of everything... and I won’t even break a sweat."**
+                             "You can try to stop me, but it will only make your suffering last longer!"**
+    Why should I stop? It’s too much fun watching everything burn!"**
+                      Look at you—so weak, so pathetic. You couldn't even stop me if you tried!"**
+                                           "You think you can control me? I’m chaos incarnate—I bow to no one!"**
+                                                         *"I don’t need friends. I don’t need allies. All I need is destruction!"**
+"You’re nothing but a bug to me, Boyfriend. Time to crush you!"**
+                                                                **"You think you can challenge ME? You’re already too late
                                           "You’re too weak to even understand what true power is, Sonic!"**
                                                      **"Sonic, you're just a mere shadow of the power I possess! A joke!"**
                                                            **"You wanted to be the hero, but look at you now—pathetic!"**
