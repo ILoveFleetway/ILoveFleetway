@@ -22,36 +22,36 @@ Welcome to the repository of **Fleetway Super Sonic** — the embodiment of chao
   - 
          **"Foolish little creatures, thinking they can challenge me!"**
     
-              **"It’s not about saving anyone. It’s about causing as much damage as possible!"**
+ **"It’s not about saving anyone. It’s about causing as much damage as possible!"**
     
-                        **"I’ll be the end of everything... and I won’t even break a sweat."**
+       **"I’ll be the end of everything... and I won’t even break a sweat."**
     
-                             "You can try to stop me, but it will only make your suffering last longer!"**
+                  "You can try to stop me, but it will only make your suffering last longer!"**
     
     Why should I stop? It’s too much fun watching everything burn!"**
     
-                      Look at you—so weak, so pathetic. You couldn't even stop me if you tried!"**
+             Look at you—so weak, so pathetic. You couldn't even stop me if you tried!"**
     
-                                           "You think you can control me? I’m chaos incarnate—I bow to no one!"**
+  "You think you can control me? I’m chaos incarnate—I bow to no one!"**
     
-                                                         *"I don’t need friends. I don’t need allies. All I need is destruction!"**
+                   *"I don’t need friends. I don’t need allies. All I need is destruction!"**
     
 "You’re nothing but a bug to me, Boyfriend. Time to crush you!"**
 
-                                                                **"You think you can challenge ME? You’re already too late
+                                                            
+    "You’re too weak to even understand what true power is, Sonic!"**
     
-                                          "You’re too weak to even understand what true power is, Sonic!"**
-    
-                                                     **"Sonic, you're just a mere shadow of the power I possess! A joke!"**
 
-                                                           **"You wanted to be the hero, but look at you now—pathetic!"**
+                 **"You wanted to be the hero, but look at you now—pathetic!"**
 
-                                                                   **"You can’t save anyone, Sonic. You can barely save yourself!"**
-                      I’m the one who controls chaos now, not you. You’re just a pawn in my game!"**
-                                **"Your speed means nothing when compared to the raw power I hold. I will destroy everything you care about!"**
-                                    **"Face it, Sonic—you're just too slow to stop me. And I'm enjoying every second of it!"**
-                                       **"You call yourself the hero? Heroes don’t destroy everything in their path. But I do!"**
-                             "Your attempts to stop me are laughable, Sonic. I *am* the ultimate power!"**
+**"You can’t save anyone, Sonic. You can barely save yourself!"**
+
+   I’m the one who controls chaos now, not you. You’re just a pawn in my game!"**
+   
+      **"Your speed means nothing when compared to the raw power I hold. I will destroy everything you care about!"**
+             **"Face it, Sonic—you're just too slow to stop me. And I'm enjoying every second of it!"**
+ **"You call yourself the hero? Heroes don’t destroy everything in their path. But I do!"**
+  "Your attempts to stop me are laughable, Sonic. I *am* the ultimate power!"**
  "Look at you, Sonic. A mere reflection of the power that I’ve become. Weak. Helpless."**
 
 
