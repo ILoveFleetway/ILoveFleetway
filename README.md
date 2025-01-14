@@ -17,7 +17,7 @@ Welcome to the repository of **Fleetway Super Sonic** — the embodiment of chao
  - **"You think you can tame chaos? Chaos is what I am!"**
      - **"You wanted a hero? I’m the villain of your nightmares!"**
                 "I can destroy you without even trying!"
-![image](https://github.com/user-attachments/assets/178c6ae1-02f2-4a70-9877-2cb7aab0726c)
+       
   - **"This is my world now! Nothing can stop me!"**
   - 
 "Foolish little creatures, thinking they can challenge me!"**
@@ -25,7 +25,7 @@ Welcome to the repository of **Fleetway Super Sonic** — the embodiment of chao
  **"It’s not about saving anyone. It’s about causing as much damage as possible!"**
   
   *"I’ll be the end of everything... and I won’t even break a sweat."**
-    
+     ![image](https://github.com/user-attachments/assets/84ae9ecf-7504-4bdf-9243-2189ce6edae0)
    "You can try to stop me, but it will only make your suffering last longer!"**
     
    Why should I stop? It’s too much fun watching everything burn!"**
