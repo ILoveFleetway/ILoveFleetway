@@ -32,30 +32,25 @@ Welcome to the repository of **Fleetway Super Sonic** — the embodiment of chao
                                                                             - **"I don’t need friends. I don’t need allies. All I need is destruction!"**
 
                                                                             - **"You’re nothing but a bug to me, Boyfriend. Time to crush you!"**
--                                                                           **"This is my world now, and I’ll make sure you don’t leave it alivE
--                                                                       - **"You think you can challenge ME? You’re already too late
--                                                                   *"You think you can stop me, Sonic? I am *beyond* your control!"**
--                                                **"You’re too weak to even understand what true power is, Sonic!"**
--                                                       **"Sonic, you're just a mere shadow of the power I possess! A joke!"**
--                                                              **"You wanted to be the hero, but look at you now—pathetic!"**
--                                                                    **"You can’t save anyone, Sonic. You can barely save yourself!"**
+                                                                      - **"You think you can challenge ME? You’re already too late
+                                               **"You’re too weak to even understand what true power is, Sonic!"**
+                                                     **"Sonic, you're just a mere shadow of the power I possess! A joke!"**
+                                                           **"You wanted to be the hero, but look at you now—pathetic!"**
+                                                                   **"You can’t save anyone, Sonic. You can barely save yourself!"**
                        - **"I’m the one who controls chaos now, not you. You’re just a pawn in my game!"**
--                           **"You think you can tame me, Sonic? Chaos has consumed me. There’s no saving this!"**
--                                **"Your speed means nothing when compared to the raw power I hold. I will destroy everything you care about!"**
--                                    **"Face it, Sonic—you're just too slow to stop me. And I'm enjoying every second of it!"**
--                                          **"You call yourself the hero? Heroes don’t destroy everything in their path. But I do!"**
--                                                  **"Your attempts to stop me are laughable, Sonic. I *am* the ultimate power!"**
--                                                      **"Look at you, Sonic. A mere reflection of the power that I’ve become. Weak. Helpless."**
+                                **"Your speed means nothing when compared to the raw power I hold. I will destroy everything you care about!"**
+                                    **"Face it, Sonic—you're just too slow to stop me. And I'm enjoying every second of it!"**
+                                       **"You call yourself the hero? Heroes don’t destroy everything in their path. But I do!"**
+                                                **"Your attempts to stop me are laughable, Sonic. I *am* the ultimate power!"**
+                                                   **"Look at you, Sonic. A mere reflection of the power that I’ve become. Weak. Helpless."**
 
----
 
 ## ⚡ **Remember, Chaos Reigns**
 
 This repository follows the same chaotic and destructive spirit of **Fleetway Super Sonic**. If you're here, you’re ready to embrace the unpredictable. Keep these words in mind as you navigate through the chaos:
 
-- **"I’m not a hero. I’m not even close. I’m your worst nightmare!"**
+ **"I’m not a hero. I’m not even close. I’m your worst nightmare!"**
 
----
 
 ### 🤘 **Join the Chaos**
 
