@@ -20,7 +20,7 @@ Welcome to the repository of **Fleetway Super Sonic** — the embodiment of chao
                                                                        
   - **"This is my world now! Nothing can stop me!"**
   - 
-         **"Foolish little creatures, thinking they can challenge me!"**
+"Foolish little creatures, thinking they can challenge me!"**
     
  **"It’s not about saving anyone. It’s about causing as much damage as possible!"**
   
