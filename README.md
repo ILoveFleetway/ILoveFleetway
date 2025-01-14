@@ -70,9 +70,11 @@ This repository follows the same chaotic and destructive spirit of **Fleetway Su
 # 🤘 **Join the Chaos**
 
 To unleash the full power of Fleetway Super Sonic on your system, clone this repository and prepare for chaos:
+![image](https://github.com/user-attachments/assets/8200e4ed-0aff-40e0-803f-57be61e8acab)
 
 ```here is some more infos for you to know me...⚡
 https://github.com/ILoveFleetway/ME
+
 
 
 
