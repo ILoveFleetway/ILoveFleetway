@@ -18,7 +18,6 @@ Welcome to the repository of **Fleetway Super Sonic** — the embodiment of chao
      - **"You wanted a hero? I’m the villain of your nightmares!"**
                 "I can destroy you without even trying!"
 ![image](https://github.com/user-attachments/assets/178c6ae1-02f2-4a70-9877-2cb7aab0726c)
-        ![image](https://github.com/user-attachments/assets/31e015d2-0177-490e-a46f-23e172471d65)
   - **"This is my world now! Nothing can stop me!"**
   - 
 "Foolish little creatures, thinking they can challenge me!"**
@@ -32,7 +31,9 @@ Welcome to the repository of **Fleetway Super Sonic** — the embodiment of chao
    Why should I stop? It’s too much fun watching everything burn!"**
     
   Look at you—so weak, so pathetic. You couldn't even stop me if you tried!"**
-    
+
+   ![image](https://github.com/user-attachments/assets/31e015d2-0177-490e-a46f-23e172471d65)
+   
   "You think you can control me? I’m chaos incarnate—I bow to no one!"**
     
    *"I don’t need friends. I don’t need allies. All I need is destruction!"**
