@@ -10,15 +10,15 @@ Welcome to the repository of **Fleetway Super Sonic** — the embodiment of chao
                                                                                G̷̖̘̠͍͗R̴̡̨̪͔̗͑̊͒Â̷̟̈͋͋́̽̄͆A̵̗̤͙͚̫̺̙̋̐̈́͐̎̋̈͐͋͜͜H̴̟̅H̷̜̮̬̑̓̈́̏̅̆͘Ḩ̸̣̝͖͚̬͖̽̂̋̋͊H̵̖͎̫̑̐͛͂͋̎̚̚͠͝ ̵̡̡̱̭́̽́̌͑̄̎̐͘Ľ̵̹̪̩̗̜̣̟̖̤̕ͅE̴̛̙̾̌T̶͎̪̜̾͆͠S̶͈̩̐̒̆̓ ̷̩͔́͑̀͗̕͝S̷̲̺͚̣͖͖͕̄E̶͖̯̖̭̊̅̉͑̈́̕̚͘͠E̴̙̫̪̠͍͙̳͒̈̏͐͘ ̶̹̭̘͉̭̫͎͂́͛̀́͂̍Ḩ̶̪͙̻͊̏̊̋͑͘O̶͈̹̅̾̐͑̅̊W̵̙͙̪̅̊͐͝͝ ̵͕̘͚̬̘̪̃͌̆͒́̈̽͌͘F̸̡̮̼̤̞͖̘̩͉́̃͜A̶͔̼͕̱͒̀́͒͋̕Ś̵̛̯̻̪̅̿̾̏́̾̑̓T̶͚͚͚̏͊́͛͌̈́̿͂͝ ̴̣̪͈͔̤͕̟̰̙̈́̇̎Y̶̮͊͑O̸̢̢̰̜͎̐͛͝Ū̷̜͊͋̄͐̓̈͆͘ ̵̰̠̈́͗̀͛̎̏̀̈́͂C̸̭̺̼͑͆̈́̽́Ã̴̢̹̯͍̃̿̕͝͠N̵̗͇̭̈́̅͌͐̈́̊͑́ ̶̢̙͎̮͔͚̰̐̏R̸̻̘͎̱̯̈̐̍͐E̷̙̓͌Ą̶̺͎͇̗̰̜̈́͑͌̈́̑̚͝L̴̨̯̈͒̂̉͆̅͛̽L̸͔̖͙̰̰̘͚̙̺͊̓͋̒̆̀͊͑̍͜Y̸̧̡̯̖̭̪̜̟͎̋̋̄͋̈́̎͆͒ ̴͎̳̜̹̜́́̆̎̿͂̊̕G̴̣̺̦̠̔́̎̌̽̃̐Ŏ̷̢̠͕͎̰̱̬̯̝̉̈́́͐͜?̸̪̇!̵̛̤͓̻͓͐̚
                                                                         Y̸̧̛͎̙̞̠͆̔͊̓̈́̐̀͘Ȍ̵̟͆͛͌͛̿́̈̊̕Ȗ̵̞̝̦͍̳̽̒͝ ̸̦̗̹̂̓̍͊ş̶̰̲̠̗͝e̶͖̣͙̲̲̎̉͌̊͊̉̆ͅè̴̅̈̂̃̈́͐̊́͘ͅ ̶̢̦̱̤̩̜̫͔̽̈́̂̈̇̽̿̕̚͝t̸̜̠̬̭̗̔ḥ̸̿͋̔̾͑͋̈́͐͠ẹ̴̯͂̃͋ ̵̟̹̹͎͓̹̩̞̙̮͗̂̄͐̒̐͘͠s̶̤̞̮̣̟͓̈́́̃̍u̸̧͎̱̥͙͚̳̰͚̍͆̇̽̅̈́̌̐͂n̴̛̞̙̪̘̫̏̆͐́̚̚ ̶̘̣̪͂͝a̴̘̼̦̤͐̇ͅn̴͎̰͔͎̜̒̈́͋͂͘d̴̙̱̠͓̪͇̈́̿̊̍̂͒͌̍ ̵̲̥̘̠̳̩̮͎̙̳̍͌̋͐͝i̶͕̝̮̮̮̯̖̫̅̄̈́̈̒̓̚ṭ̶̾͗́͗͂͌̆̕ ̴̺̝͈̲̟̈́ͅS̵̙͉̺̣̳̅̐͑T̴̛̹͚̈́À̴̛̲͍͍̣̼̹̯̲̇R̷̟͘T̴͍͕̅̄̉̓̑͛̕S̵̨̖͉̆̀̍ ̵̯̳̺̰̙̠̟̹̥̋͒̈́̅͘T̶͍̙̫̪̫͇̝̔̌͘͜Ơ̸͖̟̲̺͈̥̲̥͗͘ ̷͇͎̜̳̠̳̫̣̫̲͑B̴̼̭̘͒͠͝Ǘ̶̡̥̹̖͓̲̐̑̔̄R̶͍̯̔̈̉́͋̈́̌͗͠Ņ̵͇̞̫̼͍̠͉̺̘̇̌̒̕.̸͖̟̅̽̈́̃͘ ̴̺̻̭̎I̵̧͉̪͓͓̗̼͉͐̉ͅͅt̷͈̓̾̀́̑̾̃̚'̶̨͚̥͕̮̞̦̞̠̔̀̉̀̅̒̈̃̕͘s̷̱͕̳͉̰̊͐̔̀͜͝ ̴̨͉̼̰̑̾̎̍͜m̴̡̨̤̳̖͚̜̦̖̬̒̎́̕y̵̨̡͓͎̝͉̝͉̬̍̏̃͠ ̸̡̰̩̖̠̘̗̿̓̅͗̽̀̈́ţ̵̲̱̺̲̬͕͌͋̊̑͒͠ǘ̶͖͈̹̯̂̊̄̈́r̷̙̥̼̮̩̘̔͒́̇̋͊̆̐ͅn̶̹̳͎̩̱̽̎̀̈̿̚ ̶̺̬͖̖̥͖͓̻͗͒͌̓t̵̡̖̠̩̜̪̗̝̆̔o̴͈̥̺̩͓͉̥̿̊̆͛̈́̄͠͠͠ ̷̧̯̹̹̭̝͓̘̺̊͗͗̈́̕
 
-                                                                       - **"You’re too slow to stop me! But don’t worry—I’ll take my time destroying everything you care about!"**
-                                                                 - **"Destruction is my purpose, my joy, my reason for existence!"**
-                                                            - **"I’m beyond your control, beyond your understanding!"**
-                                                        - **"You think you can tame chaos? Chaos is what I am!"**
-                                                             - **"You wanted a hero? I’m the villain of your nightmares!"**
-                                                                       "I can destroy you without even trying!"
+   - **"You’re too slow to stop me! But don’t worry—I’ll take my time destroying everything you care about!"**
+  - **"Destruction is my purpose, my joy, my reason for existence!"**
+    - **"I’m beyond your control, beyond your understanding!"**
+ - **"You think you can tame chaos? Chaos is what I am!"**
+     - **"You wanted a hero? I’m the villain of your nightmares!"**
+                "I can destroy you without even trying!"
 ![image](https://github.com/user-attachments/assets/6beebb76-0436-4668-92e7-24c7ee372412)
                                                                        
-                                                                                - **"This is my world now! Nothing can stop me!"**
+  - **"This is my world now! Nothing can stop me!"**
                                                                                           - **"Foolish little creatures, thinking they can challenge me!"**
                                                                           - **"It’s not about saving anyone. It’s about causing as much damage as possible!"**
                                                                     - **"I’ll be the end of everything... and I won’t even break a sweat."**
