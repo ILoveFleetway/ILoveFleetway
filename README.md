@@ -33,9 +33,7 @@ Welcome to the repository of **Fleetway Super Sonic** — the embodiment of chao
    Why should I stop? It’s too much fun watching everything burn!"**
     
   Look at you—so weak, so pathetic. You couldn't even stop me if you tried!"**
-
    ![image](https://github.com/user-attachments/assets/31e015d2-0177-490e-a46f-23e172471d65)
-   
   "You think you can control me? I’m chaos incarnate—I bow to no one!"**
     
    *"I don’t need friends. I don’t need allies. All I need is destruction!"**
