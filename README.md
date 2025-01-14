@@ -1,3 +1,5 @@
+![image](https://github.com/user-attachments/assets/56d14f3e-0311-4bab-a75d-2a37f2016ccf)
+
 #💥 **Fleetway Super Sonic** - Chaos Incarnate 🌀
 
 Welcome to the repository of **Fleetway Super Sonic**, the unstoppable force of chaos from *Sonic the Comic*! Just like the power he embodies, this repo is built for those who crave destruction, speed, and pure anarchy. 😈
@@ -72,6 +74,9 @@ To unleash the full power of Fleetway Super Sonic on your system, clone this rep
 
 ```here is some more infos for you to know me...⚡
 https://github.com/ILoveFleetway/ME
+
+![image](https://github.com/user-attachments/assets/56d14f3e-0311-4bab-a75d-2a37f2016ccf)
+
 
 
 
