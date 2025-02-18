@@ -18,7 +18,7 @@ T̷̡̧̬̲̭̦̘̩̊̉͛̓̓̌͌̕Ḩ̵̛̘̤͙͔̝̫̖̻̦̞͙̺̅̿͘͝É̸�
  FLEETWAY IS MY BELOVED HUSBAND<33 (THE REAL FLEET
  .
  
- OKay so I've realized BUNCH OF People on sonic area (pt) has been taking inspo and my Fleetway quills ideas without asking my permission, i do not wish for it to become trendy and i do not want people to take inspo or copy my idea so please whisper or ask for permission.AND DONT COPY MY SKINS OR MY IDEAS OR TAKING INSPO PLEASE
+ OKay so I've realized BUNCH OF People on sonic area (pt) has been taking inspo and my Fleetway quills ideas without asking my permission, i do not wish for it to become trendy and i do not want people to take inspo or copy my idea so please whisper or ask for permission.AND AGAIN DONT COPY MY SKINS OR MY IDEAS OR TAKING INSPO PLEASE
  
 ![image](https://github.com/user-attachments/assets/9f8ef8ac-d874-4965-b6d5-41b1dbb83c2b)
 
