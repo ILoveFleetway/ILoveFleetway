@@ -68,7 +68,7 @@ SHIPS
 Me x fleetway (he is my husbando only) 
 thats it and if you dont like it pls dni ^^
 
-Fandoms I am in: Sonic/sonic.exe 100%
+Fandoms I am in: Sonic/sonic.exe infinite%
 HH/hb 3%
 fnaf 99&
 fundamnetal 10%
@@ -80,6 +80,7 @@ creepypasta 80%
 tadc/the amazing digital circus 15%
 batim 50%
 vocaloid 20%
+ppt 80%
 and ect :) 
 
 ![image](https://github.com/user-attachments/assets/4670d091-cc28-4d35-a02f-a3a8dcd692e1)
@@ -94,8 +95,6 @@ Top 1. Dagames
 6.Cg5
 7.dheusta
 and ect
-
-![image](https://github.com/user-attachments/assets/a1f33e64-b1ea-4c16-a94e-50068505d599)
 
 
  1. I love my mother (irl) sm! Shes the best mother and if u disrespect then dni.(or do not bring or talk abt my parents even as if it's a joke) 
