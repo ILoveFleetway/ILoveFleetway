@@ -9,6 +9,10 @@ T̷̡̧̬̲̭̦̘̩̊̉͛̓̓̌͌̕Ḩ̵̛̘̤͙͔̝̫̖̻̦̞͙̺̅̿͘͝É̸�
                                                                             
                                                                                                                                                                                
 
+THERE ARE 3 PEOPLE SHARING THIS ACCOUNT! ^^ 
+Fleet.
+Fleetway super sonic
+AND SUPER! (or Good/amnesia Fleet)
                                                                                                                                  
  ![image](https://github.com/user-attachments/assets/f46900be-761d-4bc3-b467-763214b70273)
 ![image](https://github.com/user-attachments/assets/61db763e-6c32-4202-952b-785513596d60)
@@ -16,7 +20,7 @@ T̷̡̧̬̲̭̦̘̩̊̉͛̓̓̌͌̕Ḩ̵̛̘̤͙͔̝̫̖̻̦̞͙̺̅̿͘͝É̸�
 ![image](https://github.com/user-attachments/assets/28f8e564-bd29-419b-ac8a-fd7a2f4eac69)
 
  FLEETWAY IS MY BELOVED HUSBAND<33 (THE REAL FLEET
- .
+ 
  
  OKay so I've realized BUNCH OF People on sonic area (pt) has been taking inspo and my Fleetway quills ideas without asking my permission, i do not wish for it to become trendy and i do not want people to take inspo or copy my idea so please whisper or ask for permission.AND AGAIN DONT COPY MY SKINS OR MY IDEAS OR TAKING INSPO PLEASE
  
