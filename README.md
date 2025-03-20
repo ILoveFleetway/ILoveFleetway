@@ -3,7 +3,6 @@ my old page: ! https://therealfleetway.straw.page/
 MY GOOGLE-SITE: https://sites.google.com/view/unleashthechaos?usp=sharing
 AYE! I SEE YOU BOZOS STOP TAKING MY FLEETWAY QUILLS IDEAS OR INSPOS ITS ANNOYING PLEASE MAKE UR OWN CREATIVE IDEAS
 ![image](https://github.com/user-attachments/assets/dcd470bc-09d4-4e79-b1ea-d0a235cde74c)
-![image](https://github.com/user-attachments/assets/b567ab31-0959-432c-946c-e7d99074ecbf)
 ![image](https://github.com/user-attachments/assets/fcb66cd8-f316-465e-b512-e6b5c40793e8)
 T̷̡̧̬̲̭̦̘̩̊̉͛̓̓̌͌̕Ḩ̵̛̘̤͙͔̝̫̖̻̦̞͙̺̅̿͘͝Ȩ̸̪̯̗̘̥̣̲̣̣͍͚͙̥̩́̀̈̆͑ Ŗ̷͇̙̰̭̪̟̺̲̜̹͔̎̍́ͅȨ̸̪̯̗̘̥̣̲̣̣͍͚͙̥̩́̀̈̆͑Ą̵̺̰̻̻͔͇͓̈́̓͛̏̈́͌͋̄̑͆̏L̷͖͈̓͌̎̉͒͗͂̓̌̚͝ F̵̜̜͎͉̯̜̓͂L̷͖͈̓͌̎̉͒͗͂̓̌̚͝Ȩ̸̪̯̗̘̥̣̲̣̣͍͚͙̥̩́̀̈̆͑Ȩ̸̪̯̗̘̥̣̲̣̣͍͚͙̥̩́̀̈̆͑T̷̡̧̬̲̭̦̘̩̊̉͛̓̓̌͌̕W̵̰̻͍̉̔̅̀̐͐͒͆̒̚Ą̵̺̰̻̻͔͇͓̈́̓͛̏̈́͌͋̄̑͆̏Ý̴̥͙̘̇̈́̇̃͒̿́͘͘͝͝ͅ Ś̸͙̺̥̰̯͙̭͆̏͂O̵̧̗͕̹̼̦̗̮̱̝͆͊́́̈̿̋ͅN̸̡̧͕͙̼̻̳̦̪̞̯͎̦͓̏̒͌͑͒͊̾͌̑̅̕͝ͅI̸̺̺͎̰̥̜̯̼̮̰͖̜͂͆̿̈́̿̔C̴̀͐ͅ
                              
