@@ -1,7 +1,16 @@
 NEW WIP SOON
 
 ![Profile views](https://komarev.com/ghpvc/?username=your-github-username&color=red)
-![Clock](https://img.shields.io/badge/time-14%3A30%20CET-blue)
+<script>
+function updateClock() {
+    const now = new Date().toLocaleTimeString("en-GB", { timeZone: "Europe/Oslo" });
+    document.getElementById("clock").innerText = now;
+}
+setInterval(updateClock, 1000);
+</script>
+
+<h2 id="clock">Loading...</h2>
+
 
 
 my old page: ! https://therealfleetway.straw.page/
