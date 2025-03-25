@@ -1,7 +1,8 @@
 NEW WIP SOON
 
 ![Profile views](https://komarev.com/ghpvc/?username=your-github-username&color=red)
-![Live Clock](https://time.is/widget/img.php?time_format=HH:mm:ss&tz=Europe/Oslo)
+![Clock](https://img.shields.io/badge/time-14%3A30%20CET-blue)
+
 
 my old page: ! https://therealfleetway.straw.page/
 MY GOOGLE-SITE: https://sites.google.com/view/unleashthechaos?usp=sharing
