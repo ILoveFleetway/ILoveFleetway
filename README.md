@@ -1,7 +1,8 @@
 NEW WIP SOON
 
 ![Profile views](https://komarev.com/ghpvc/?username=your-github-username&color=red)
-![Clock](https://img.shields.io/badge/time-14%3A30%20CET-blue)
+![Live Clock](https://time.is/widget/img.php?time_format=HH:mm:ss&tz=Europe/Oslo)
+
 
 
 
