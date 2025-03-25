@@ -1,10 +1,6 @@
 NEW WIP SOON
 
 ![Profile views](https://komarev.com/ghpvc/?username=your-github-username&color=red)
-![Live Clock](https://time.is/widget/img.php?time_format=HH:mm:ss&tz=Europe/Oslo)
-
-
-
 
 
 my old page: ! https://therealfleetway.straw.page/
