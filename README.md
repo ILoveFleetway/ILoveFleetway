@@ -1,6 +1,7 @@
 NEW WIP SOON
 
 ![Profile views](https://komarev.com/ghpvc/?username=your-github-username&color=red)
+![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https://github.com/your-github-username&count_bg=%233D3D3D&title_bg=%23555555&icon=github.svg&icon_color=%23E7E7E7&title=Profile+views&edge_flat=false)
 
 my old page: ! https://therealfleetway.straw.page/
 MY GOOGLE-SITE: https://sites.google.com/view/unleashthechaos?usp=sharing
