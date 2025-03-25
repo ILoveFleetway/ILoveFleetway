@@ -1,7 +1,7 @@
 NEW WIP SOON
 
 ![Profile views](https://komarev.com/ghpvc/?username=your-github-username&color=red)
-![Countdown](https://img.shields.io/badge/Countdown-10%20days%20left-blue)
+![Clock](https://img.shields.io/badge/time-12%3A30%20PM-blue)
 
 my old page: ! https://therealfleetway.straw.page/
 MY GOOGLE-SITE: https://sites.google.com/view/unleashthechaos?usp=sharing
