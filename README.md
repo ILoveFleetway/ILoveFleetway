@@ -2,6 +2,7 @@ NEW WIP SOON
 
 ![Profile views](https://komarev.com/ghpvc/?username=your-github-username&color=red)
 
+ANYONE WHO PLAYS MINECRAFT PLEASE BE MY MOOTS 😭 i srsly need more mc players
 
 my old page: ! https://therealfleetway.straw.page/
 MY GOOGLE-SITE: https://sites.google.com/view/unleashthechaos?usp=sharing
