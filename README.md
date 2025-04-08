@@ -4,6 +4,8 @@ NEW WIP SOON
 
 ANYONE WHO PLAYS MINECRAFT PLEASE BE MY MOOTS 😭 i srsly need more mc players
 
+Do not judge me or call me a bad vibe without knowing me who i am. otherwise dni? cuz who are you to judge
+
 my old page: ! https://therealfleetway.straw.page/
 MY GOOGLE-SITE: https://sites.google.com/view/unleashthechaos?usp=sharing
 AYE! I SEE YOU BOZOS STOP TAKING MY FLEETWAY QUILLS IDEAS OR INSPOS ITS ANNOYING PLEASE MAKE UR OWN CREATIVE IDEAS
