@@ -1,7 +1,7 @@
 NEW WIP SOON
 
 ![Profile views](https://komarev.com/ghpvc/?username=your-github-username&color=red)
-![image](https://github.com/user-attachments/assets/70de1d5b-16f3-4b2d-8357-e6399338f61d)
+![Rings](https://img.shields.io/badge/Rings-826,661-blue)
 
 
 ANYONE WHO PLAYS MINECRAFT PLEASE BE MY MOOTS 😭 i srsly need more mc players
