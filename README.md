@@ -2,6 +2,8 @@ NEW WIP SOON
 
 ![Profile views](https://komarev.com/ghpvc/?username=your-github-username&color=red)
 ![Rings](https://img.shields.io/badge/Rings-826,661-blue)
+![time 16:42 (Europe)](https://img.shields.io/badge/time-16:42%20(Europe)-blue)
+
 
 
 ANYONE WHO PLAYS MINECRAFT PLEASE BE MY MOOTS 😭 i srsly need more mc players
