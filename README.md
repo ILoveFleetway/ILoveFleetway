@@ -1,4 +1,5 @@
 NEW WIP SOON
+I need friends
 
 ![Profile views](https://komarev.com/ghpvc/?username=your-github-username&color=red)
 ![Rings](https://img.shields.io/badge/Rings-826,661-blue)
