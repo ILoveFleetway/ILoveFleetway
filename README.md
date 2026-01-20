@@ -17,11 +17,8 @@ wip
 
 new wip
 
-<img src="https://github.com/user-attachments/assets/2e400d74-e723-4e29-9276-97a854f8dd4d" width="300"/>
-<img src="https://github.com/user-attachments/assets/ecda835e-5e7f-4b5a-aee2-1b920259afa5" width="300"/>
-<img src="https://github.com/user-attachments/assets/2f87aa37-a184-4f97-8f21-c0c08ba8a0a3" width="300"/>
-<img src="https://github.com/user-attachments/assets/9d6b82c1-52e7-467f-bf93-8f7e5323d276" width="300"/>
-<img src="https://github.com/user-attachments/assets/18102ad5-faab-4406-8e3e-6d013e027ede" width="300"/>
+
+
 
 <img src="https://github.com/user-attachments/assets/5a5e9181-2ecb-4e4f-a513-46d52e109cac" width="300"/>
 <img src="https://github.com/user-attachments/assets/82685f29-4075-4732-aa09-397243b1c495" width="300"/>
