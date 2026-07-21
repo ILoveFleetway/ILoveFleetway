@@ -5,6 +5,7 @@
 <img width="300" height="300" alt="Image" src="https://github.com/user-attachments/assets/19facdd5-f624-4bae-b8db-b5db9de6484f" />
 
 wip
+<img src="https://github.com/user-attachments/assets/4989e490-bd03-42bb-8467-bba6c44cb82f" width="692" height="490" alt="Sonic and Amy" />
 
 <img src="https://github.com/user-attachments/assets/56739a47-f784-43bb-bfe6-7c2402149910" width="300"/>
 <img src="https://github.com/user-attachments/assets/e0cf1693-9d02-485d-88e2-f524813f2701" width="300"/>
