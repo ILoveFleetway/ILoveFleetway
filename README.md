@@ -7,6 +7,7 @@
 wip 
 
 <img width="692" height="490" alt="Image" src="https://github.com/user-attachments/assets/0b474035-e607-4a86-9cbe-19a195e3d05a" />
+<img width="509" height="360" alt="Image" src="https://github.com/user-attachments/assets/4989e490-bd03-42bb-8467-bba6c44cb82f" />
 
 <img src="https://github.com/user-attachments/assets/56739a47-f784-43bb-bfe6-7c2402149910" width="300"/>
 <img src="https://github.com/user-attachments/assets/e0cf1693-9d02-485d-88e2-f524813f2701" width="300"/>
