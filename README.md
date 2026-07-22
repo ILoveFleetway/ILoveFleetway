@@ -4,6 +4,8 @@
 <img src="https://github.com/user-attachments/assets/8d6d225c-bf62-44a5-adc9-fb357cb913d3" width="300"/>
 <img width="300" height="300" alt="Image" src="https://github.com/user-attachments/assets/19facdd5-f624-4bae-b8db-b5db9de6484f" />
 
+do NOT copy my skins please ^^
+
 wip
 <img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/dda1126f-12ff-4940-a962-71d89b66e623" />
 
