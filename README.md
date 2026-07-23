@@ -2,6 +2,8 @@ HII!! WELCOME TO MY PAGE! UNFORTUNATELY ITS STILL A NEW WIP!!
 FEEL FREE TO INT WITH ME OR C+H AS LONG YOUR NOT PROBLEMATIC! IM ALWAYS OPEN FOR MAKING NEW FRIENDS WHEN I CAN!!
 I DO GET MOODY TIMES TO TIMES BUT I AM NICE ONCE YOU GET TO KNOW ME BETTER! :D
 
+OH AND AGAIN PLEASE DO NOT ASK ABOUT MY QUILLS OR SKINS I DO NOT WANT ANYONE TO COPY MY SKINS OR TAKE INSPO!! THANK U!^^
+
 <img src="https://github.com/user-attachments/assets/10cd901b-6f31-40fb-b85a-0324455d2d2c" width="300"/>
 <img src="https://github.com/user-attachments/assets/dec2cf31-8126-4329-89e4-ab6e4e182d98" width="300"/>
 <img src="https://github.com/user-attachments/assets/aae2feb8-1935-4989-a5d4-2bdb9be372ea" width="300"/>
