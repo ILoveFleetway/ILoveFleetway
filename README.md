@@ -7,6 +7,8 @@ I AM AN ADULT. IM MAINLY ON PT, MINECRAFT AND SOMETIMES ON ROBLOX
 I AM MAKING MY OWN FLEETWAY GAME 
 
 
+IM USUALLY IN STH AREA OR WITH MY PALS!
+
 <img src="https://github.com/user-attachments/assets/10cd901b-6f31-40fb-b85a-0324455d2d2c" width="300"/>
 <img src="https://github.com/user-attachments/assets/dec2cf31-8126-4329-89e4-ab6e4e182d98" width="300"/>
 <img src="https://github.com/user-attachments/assets/aae2feb8-1935-4989-a5d4-2bdb9be372ea" width="300"/>
@@ -14,6 +16,7 @@ I AM MAKING MY OWN FLEETWAY GAME
 <img width="300" height="300" alt="Image" src="https://github.com/user-attachments/assets/19facdd5-f624-4bae-b8db-b5db9de6484f" />
 
 do NOT copy my skins please ^^
+FLEETWAY SUPER SONIC #1 FAN SINCE 2013
 
 wip
 <img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/dda1126f-12ff-4940-a962-71d89b66e623" />
