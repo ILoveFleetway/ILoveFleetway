@@ -17,6 +17,7 @@ FLEETWAY SUPER SONIC #1 FAN SINCE 2013
 wip
 <img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/dda1126f-12ff-4940-a962-71d89b66e623" />
 
+art cred- https://github.com/TheRoseOfDawn ! check her out its super cool!!
 
 
 new wip soon!! follow my gh!^^
