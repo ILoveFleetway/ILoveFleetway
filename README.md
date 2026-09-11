@@ -15,11 +15,11 @@ do NOT copy my skins please ^^
 FLEETWAY SUPER SONIC #1 FAN SINCE 2013
 
 wip
-<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/dda1126f-12ff-4940-a962-71d89b66e623" />
+<img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/dda1126f-12ff-4940-a962-71d89b66e623" />
 
 
 
-new wip
+new wip soon!! follow my gh!^^
 
 
 
