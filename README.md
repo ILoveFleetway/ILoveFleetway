@@ -3,7 +3,7 @@ HII!!
 
 <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/7471a358-4925-4382-b94a-4f6027274e2e" /> WELCOME TO MY PAGE! UNFORTUNATELY ITS STILL A NEW WIP!! 
 
-FEEL FREE TO INT WITH ME OR C+H AS LONG YOUR NOT PROBLEMATIC! IM ALWAYS OPEN FOR MAKING NEW FRIENDS WHEN I CAN!!
+<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/0c00fbe0-302b-4a88-8667-734cbed2be5a" /> FEEL FREE TO INT WITH ME OR C+H AS LONG YOUR NOT PROBLEMATIC! IM ALWAYS OPEN FOR MAKING NEW FRIENDS WHEN I CAN!!
 I DO GET MOODY TIMES TO TIMES BUT I AM NICE ONCE YOU GET TO KNOW ME BETTER! :D
 
  <a href="https://fleetwaysonic1.atabook.org"></i>ata</i></a> ⋆˚꩜｡ soon i'll rmk my strawpage
