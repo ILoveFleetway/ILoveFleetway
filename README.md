@@ -7,7 +7,7 @@ HII!!
 
 <img width="35" height="35" alt="Image" src="https://github.com/user-attachments/assets/a9b53e47-9b11-4d69-b49e-1324bd03fe72" /> IM ALWAYS OPEN FOR MAKING NEW FRIENDS WHEN I CAN!!
 
-I DO GET MOODY TIMES TO TIMES BUT I AM NICE ONCE YOU GET TO KNOW ME BETTER! :D
+<img width="35" height="35" alt="Image" src="https://github.com/user-attachments/assets/81a27d78-5644-4abb-9f69-8146cf7bf258" /> I DO GET MOODY TIMES TO TIMES BUT I AM NICE ONCE YOU GET TO KNOW ME BETTER! :D
 
  <a href="https://fleetwaysonic1.atabook.org"></i>ata</i></a> ⋆˚꩜｡ soon i'll rmk my strawpage
 
