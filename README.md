@@ -12,7 +12,6 @@ HII!!
 
  <a href="https://fleetwaysonic1.atabook.org"></i>ata</i></a> ⋆˚꩜｡ soon i'll rmk my strawpage
 
- <a href="https://amyrosecupcake.straw.page."></i>straw</i></a>
  
 OH AND AGAIN PLEASE DO NOT ASK ABOUT MY QUILLS OR SKINS I DO NOT WANT ANYONE TO COPY MY SKINS OR TAKE INSPO!! THANK U!^^
 I AM AN ADULT. IM MAINLY ON PT, MINECRAFT AND SOMETIMES ON ROBLOX
