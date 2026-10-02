@@ -10,8 +10,7 @@ HII!!
 
 <img width="35" height="35" alt="Image" src="https://github.com/user-attachments/assets/81a27d78-5644-4abb-9f69-8146cf7bf258" /> I DO GET MOODY TIMES TO TIMES BUT I AM NICE ONCE YOU GET TO KNOW ME BETTER! :D
 
- <a href="https://fleetwaysonic1.atabook.org"></i>ata</i></a> ⋆˚꩜｡ soon i'll rmk my strawpage
-
+ <a href="https://fleetwaysonic1.atabook.org"></i>ata</i></a> ⋆˚꩜｡  <a href="[https://fleetwayspage2.straw.page]"></i>Straw</i></a> ⋆˚꩜｡ 
  
 OH AND AGAIN PLEASE DO NOT ASK ABOUT MY QUILLS OR SKINS I DO NOT WANT ANYONE TO COPY MY SKINS OR TAKE INSPO!! THANK U!^^
 I AM AN ADULT. IM MAINLY ON PT, MINECRAFT AND SOMETIMES ON ROBLOX
