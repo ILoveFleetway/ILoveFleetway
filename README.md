@@ -26,7 +26,7 @@ FLEETWAY SUPER SONIC #1 FAN SINCE 2013
 <img width="976" height="222" alt="Image" src="https://github.com/user-attachments/assets/9ab27974-9c43-451d-824a-5b5d657f7fb6" />
 wip
 
-<img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/f8c24c24-97bf-41f6-a027-66d87fc55bbf" />
+<img width="976" height="222" alt="Image" src="https://github.com/user-attachments/assets/f8c24c24-97bf-41f6-a027-66d87fc55bbf" />
 
 <img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/dda1126f-12ff-4940-a962-71d89b66e623" />
 <img width="1684" height="1433" alt="Image" src="https://github.com/user-attachments/assets/3015c0e3-f390-43a9-ac4b-618c86af8e08" />
