@@ -5,7 +5,7 @@ HII!!
 <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/7471a358-4925-4382-b94a-4f6027274e2e" />${\color{#6a040f} WELCOME \space TO\space MY\space PAGE!\}$
 ${\color{#9d0208} UNFORTUNATELY \space ITS\space STILL\space A\space NEW\space WIP!!\}$
 
-<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/0c00fbe0-302b-4a88-8667-734cbed2be5a" /> FEEL FREE TO INT WITH ME OR C+H AS LONG YOUR NOT PROBLEMATIC!
+<img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/0c00fbe0-302b-4a88-8667-734cbed2be5a" /> ${\color{#d00000} FEEL\space FREE\space TO\space INT\space WITH\space ME\space OR\space C+H\space AS\space LONG\space YOUR\space NOT\space PROBLEMATIC!\}$
 
 <img width="35" height="35" alt="Image" src="https://github.com/user-attachments/assets/a9b53e47-9b11-4d69-b49e-1324bd03fe72" /> IM ALWAYS OPEN FOR MAKING NEW FRIENDS WHEN I CAN!!
 
