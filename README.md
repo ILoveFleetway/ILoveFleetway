@@ -1,7 +1,7 @@
 HII!!
 ꉂ`𖦹.
 
-
+<img src="https://files.catbox.moe/7fz0c5.gif" width="25" height="25"> ${\color{#e5b1c5} I \space don't \space know \space what \space to \space feel \space or \space do \space at \space this \space time,}$ ${\color{#a95f89} I'm \space sorry.}$ ಣ𓈒ֵ۫
 <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/7471a358-4925-4382-b94a-4f6027274e2e" /> WELCOME TO MY PAGE! UNFORTUNATELY ITS STILL A NEW WIP!! 
 
 <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/0c00fbe0-302b-4a88-8667-734cbed2be5a" /> FEEL FREE TO INT WITH ME OR C+H AS LONG YOUR NOT PROBLEMATIC!
