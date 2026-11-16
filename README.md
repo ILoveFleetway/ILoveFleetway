@@ -3,7 +3,7 @@ HII!!
 
 
 <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/7471a358-4925-4382-b94a-4f6027274e2e" />${\color{#6a040f} WELCOME \space TO\space MY\space PAGE!\}$
- UNFORTUNATELY ITS STILL A NEW WIP!! 
+${\color{#9d0208} UNFORTUNATELY \space ITS\space STILL\space A\space NEW\space WIP!!\}$
 
 <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/0c00fbe0-302b-4a88-8667-734cbed2be5a" /> FEEL FREE TO INT WITH ME OR C+H AS LONG YOUR NOT PROBLEMATIC!
 
