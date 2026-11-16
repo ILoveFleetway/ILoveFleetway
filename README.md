@@ -9,7 +9,7 @@ ${\color{#9d0208} UNFORTUNATELY \space ITS\space STILL\space A\space NEW\space W
 
 <img width="35" height="35" alt="Image" src="https://github.com/user-attachments/assets/a9b53e47-9b11-4d69-b49e-1324bd03fe72" /> ${\color{#dc3002} IM\space ALWAYS\space OPEN\space FOR\space MAKING\space NEW\space FRIENDS\space WHEN\space I\space CAN!!}$
 
-<img width="35" height="35" alt="Image" src="https://github.com/user-attachments/assets/81a27d78-5644-4abb-9f69-8146cf7bf258" /> I DO GET MOODY TIMES TO TIMES BUT I AM NICE ONCE YOU GET TO KNOW ME BETTER! :D
+<img width="35" height="35" alt="Image" src="https://github.com/user-attachments/assets/81a27d78-5644-4abb-9f69-8146cf7bf258" /> ${\color{#e85c04} I\space DO\space GET\space MOODY\space TIMES\space TO\space TIMES\space BUT\space I\space AM\space NICE\space ONCE\space YOU\space GET\space TO\space KNOW\space ME\space BETTER!\space :D}$
 
 <img width="45" height="45" alt="Image" src="https://github.com/user-attachments/assets/1b46b6bf-38b6-43e1-8843-7cf3aa0176ad" /> @TheRoseOfDawn <a href="https://github.com/TheRoseOfDawn"></i>Ron!</i></a> RON IS MY BESTEST FRIEND! Love her! <3 (check her strawpage shes so cool!)
  
