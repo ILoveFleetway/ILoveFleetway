@@ -11,7 +11,7 @@ ${\color{#9d0208} UNFORTUNATELY \space ITS\space STILL\space A\space NEW\space W
 
 <img width="35" height="35" alt="Image" src="https://github.com/user-attachments/assets/81a27d78-5644-4abb-9f69-8146cf7bf258" /> ${\color{#e85c04} I\space DO\space GET\space MOODY\space TIMES\space TO\space TIMES\space BUT\space I\space AM\space NICE\space ONCE\space YOU\space GET\space TO\space KNOW\space ME\space BETTER!\space :D}$
 
-<img width="45" height="45" alt="Image" src="https://github.com/user-attachments/assets/1b46b6bf-38b6-43e1-8843-7cf3aa0176ad" /> ${\color{#ed3d7b} \@TheRoseOfDawn}$ <a href="https://github.com/TheRoseOfDawn"></i>Ron!</i></a> ${\color{#f16393} RON\space IS\space MY\space BESTEST\space FRIEND!\space Love\space her!\space <3}$ ${\color{#f38fb3} \(check her strawpage shes so cool!)}$
+<img width="45" height="45" alt="Image" src="https://github.com/user-attachments/assets/1b46b6bf-38b6-43e1-8843-7cf3aa0176ad" /> ${\color{#ed3d7b} \@TheRoseOfDawn}$ <a href="https://github.com/TheRoseOfDawn"></i>Ron!</i></a> ${\color{#f16393} RON\space IS\space MY\space BESTEST\space FRIEND!\space Love\space her!\space <3}$ ${\color{#f38fb3} \(check\space her\space strawpage\space shes\space so\space cool!)}$
  
  <a href="https://fleetwaysonic1.atabook.org"></i>Ata</i></a> ⋆˚꩜｡  <a href="https://fleetwayspage2.straw.page"></i>Straw</i></a> ⋆˚꩜｡ 
  
