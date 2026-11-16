@@ -26,7 +26,7 @@ IM USUALLY IN STH AREA OR WITH MY PALS!
 
 do NOT copy my skins please ^^
 FLEETWAY SUPER SONIC #1 FAN SINCE 2013
-<img width="976" height="222" alt="Image" src="https://github.com/user-attachments/assets/9ab27974-9c43-451d-824a-5b5d657f7fb6" />
+<img width="976" height="222" alt="image" src="https://github.com/user-attachments/assets/f2aa6d16-6028-4b02-9779-02dcc66c0261" />
 wip
 
 <img width="1000" height="600" alt="Image" src="https://github.com/user-attachments/assets/f8c24c24-97bf-41f6-a027-66d87fc55bbf" />
