@@ -31,7 +31,7 @@ wip
 
 <img width="1000" height="600" alt="Image" src="https://github.com/user-attachments/assets/f8c24c24-97bf-41f6-a027-66d87fc55bbf" />
 
-<img width="1125" height="1500" alt="image" src="https://github.com/user-attachments/assets/01fd7d67-6d3b-428d-82e4-ed0fe864b4ba" />
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/3b100dbf-2358-40c7-8d69-6df631e58594" />
 <img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/dda1126f-12ff-4940-a962-71d89b66e623" />
 <img width="1684" height="1433" alt="Image" src="https://github.com/user-attachments/assets/3015c0e3-f390-43a9-ac4b-618c86af8e08" />
 
